@@ -2,11 +2,11 @@
 
 My name is Bro. Bell.
 
-	- brief intro of Angie and kids
-		- Angie and I met in SLC Community College Institute Choir
-		- Ashley is 18, married and lives back in Idaho
-		- other kids name and ages, etc.
-		- Front End Web Dev for TCS/Citi
+- Brief intro of Angie and kids
+	- Angie and I met in SLC Community College Institute Choir
+	- Ashley is 18, married and lives back in Idaho
+	- other kids name and ages, etc.
+	- Front End Web Dev for TCS/Citi
 
 I have been asked to give a talk on Family Councils.  I wasn't given any particular direction, so I will be pulling from a couple of M. Russell Ballard's conference talks and from our own family council experiences.
 
@@ -90,7 +90,7 @@ He goes on to say:
 > In all of these family council settings, electronic devices need to be turned off so everyone can look at and listen to each other. During family councils and at other appropriate times, you may want to have a basket for the electronic devices so when the family gathers, everyone—including Mom and Dad—can deposit his or her phones, tablets, and MP3 players in the basket. Thereafter, they can counsel together without being tempted to respond to a poke on Facebook, to a text, to Instagram, to Snapchat, or to email alerts.
 
 
-## **Full Family Council**
+## **1. Full Family Council**
 
 Let's talk about the first type of family council that Elder Ballard mentions... the **Full Family Council**.
 
@@ -105,17 +105,17 @@ Elder Ballard makes the following recommendation:
 > You may want to consider holding the general family council on Sunday, which is the first day of the week; families can review the past week and plan for the coming week. This may be exactly what your family needs to help make the Sabbath a delightful experience.
 
 
-## **Parent Council**
+## **2. Parent Council**
 
 In the second type of family council, just the parents get together to discuss the needs of each child.  It is also a good time to talk each other about your personal relationship with each other.
 
 
-## **Parents and One Child**
+## **3. Parents and One Child**
 
 In the third type of family council, both parents will meet with one child.  This can be a time to help them make decisions for their future and to make goals. It can be a time to listen to serious concerns and challanges.
 
 
-## **Parent and Child**
+## **4. Parent and Child**
 
 The forth type of family council is a one-on-one between one parent and one child.  This type of family council is similar to the third and often _just happens_.  It can be when you are traveling in the car together, or working around the house.  It could also be a scheduled bonding time.  I often like to do Daddy-Daughter dates.
 
@@ -130,12 +130,14 @@ In our family council, we start with a prayer and occasionally we include a song
 
 We usually start talking about what meals we want to do for the week.  Each of our girls (_and eventually J.T. when he gets older_), has to cook one night that week.  There is a lot of back and forth on what they want to eat and what they want to cook.  Each person usually has a set day they cook, but sometimes it gets switched around depending on what we have going on during the week.
 
-We then talk about what we have going on during the week.  We set up a shared Google Calendar where we can add different things to let the rest of the family know what we have going on.  When Amber was in volleyball we had all her practices in the calendar. We would schedule time to go to the temple. We scheduled dentist or doctor appointments and pretty much anything else we had going on.
+Next we talk about what we have going on during the week.  We set up a shared Google Calendar where we can add different things to let the rest of the family know what we have going on.  When Amber was in volleyball we had all her practices in the calendar. We would schedule time to go to the temple. We scheduled dentist or doctor appointments and pretty much anything else we had going on.
 
-After that we would ask if there were any concerns that anybody wanted to bring up.  This sometimes could bring up conversations that would get a little heated... especially when we first started.  I think we have gotten better about discussing things more calmingly.
+After talking about the events of the week we ask if there are any concerns that anybody wants to bring up.  This sometimes can bring up conversations that can get a little heated... especially when we first started doing family council.  Over time, however, I think we have gotten a lot better about calmly discussing things.
 
-Other times we will get to talking about random things and family council will go all over the place.  We often find ourselves laughing and having a great conversation.
+Sometimes we will get to talking about random things and family council will break off into many tangents.  We often find ourselves laughing and having a great conversation.
 
 Sometimes we go right into scripture study at the end and follow up with family prayer.
+
+## **Testimony**
 
 I testify to you of the power of Family Council.  It has been a great blessing in our lives.  It has brought us together and strengthened us as a family.  I am so grateful for my family.  My family is such a blessing in my life.  I can't imagine my life without them.  I am so grateful we can be eternal families.  I am grateful for the plan of Salvation.  I am so grateful for the Savior.
