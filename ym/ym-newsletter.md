@@ -3,26 +3,10 @@ Good evening Brothers and Sisters,
 Here is a list of upcoming activities for the Young Men in the Justin Ward:
 
 
-### Wednesday, 3/6/19
+### Wednesday, 3/13/19
 
 - **Deacons** will be meeting at Brother Newell's home for scouting at 7:00 pm.
-- **Teachers & Priests** - "Snow Ball Fight"
-	- **Time**: 6:00 pm
-	- **Location**: Clara Love
-
-
-### Friday - Saturday, 3/8/19 - 3/9/19
-
-- **Deacons Campout** - LBJ Grasslands
-	- **Time**: 5:30pm
-	- **Location**: Hutchen's Home - will carpool to LBJ Grasslands
-	- **Details**: We are meeting at the Hutchen's home in Harriet Creek at 5:30pm on Friday. We are carpooling to the LBJ Grasslands. We will leave Saturday around 1:00pm.
-
-
-
-## Week of Spring Break
-
-**No mutual activities scheduled during Spring Break**
+- **Teachers & Priests**: No mutual activities scheduled during Spring Break
 
 
 
