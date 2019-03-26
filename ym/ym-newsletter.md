@@ -3,29 +3,17 @@ Good evening Brothers and Sisters,
 Here is a list of upcoming activities for the Young Men in the Justin Ward:
 
 
-### Wednesday, 3/20/19
+### Wednesday, 3/27/19
 
-- **Deacons** will be meeting at Brother Newell's home for scouting at 7:00 pm.  We will continue the knife making project.
-- **Teachers & Priests**: will instead be meeting on Saturday for service project.
-
-
-
-### Saturday, 3/23/19
-
-- **Teachers & Priests**: Service to help re-pave walk/drive way.
-    - **Time**: 8:45 AM
-    - **Location**: Harriet Creek pool, then Sister Hearon's home
-    - **Details**: we will be meeting at Harriet Creek pool at 8:45 AM and the carpool to Sister Hearon's home.  The activity should go from 9:00 to 11:00 AM.  We will be working with the Elders Quorum to help re-pave Sister Hearon's walk/drive way.  **Shovels and gloves** will be helpful to bring.
-- **Multi-Stake Travel Dance**
-    - **Time**: 8:00 - 10:30 PM
-    - **Location**: [7600 N. Beach Street, Fort Worth, TX 76137](https://goo.gl/maps/Pk1cvztgZCN2)
-    - **Details**: Casual Dress. See attached flyer (sorry, flyer is blurry). #fwtntraveldance
+- **YM and YW Combined** - Kickball and Volleyball
+	- **Time**: 6:30 - 7:30 PM
+	- **Location**: Justin Park - [408 Pafford Avenue, Justin, TX](https://goo.gl/maps/VszphBjeXw82)
 
 
 
 ### Friday, 4/12/19
 
-- Priest/Laurel Prom (Hollywood Gala)
+- **Priest/Laurel Prom (Hollywood Gala)**
     - **Time**: 8-11 PM
     - **Location**: Buffalo Valley Event Center
         - [3501 Ganzer Road West, Denton, TX  76207](https://goo.gl/maps/XZBzsWAiFb92)
