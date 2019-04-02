@@ -3,12 +3,11 @@ Good evening Brothers and Sisters,
 Here is a list of upcoming activities for the Young Men in the Justin Ward:
 
 
-### Wednesday, 3/27/19
-
-- **YM and YW Combined** - Kickball and Volleyball
-	- **Time**: 6:30 - 7:30 PM
-	- **Location**: Justin Park - [408 Pafford Avenue, Justin, TX](https://goo.gl/maps/VszphBjeXw82)
-
+### Wednesday, 4/3/19
+- **Deacons**: We will be meeting at Brother Newell's home for scouting at 7:00 PM.
+- **Teachers and Priests**: Game of Kubb
+	- **Location**: Justin Community Park - [420 Ovaletta Dr, Justin, Texas](https://goo.gl/maps/ZDrxtRh6HCr)
+	- **Time**: 7:00 PM
 
 
 ### Friday, 4/12/19
@@ -17,30 +16,18 @@ Here is a list of upcoming activities for the Young Men in the Justin Ward:
     - **Time**: 8-11 PM
     - **Location**: Buffalo Valley Event Center
         - [3501 Ganzer Road West, Denton, TX  76207](https://goo.gl/maps/XZBzsWAiFb92)
-    - **Details**: Formal Attire. See attached flyer for additional details.
+    - **Details**: Formal Attire. See [this flyer for additional details](https://drive.google.com/open?id=1zsfRfy6NgAxZRmds8gkcVRRGO_67XaE4).
 
 
-
-## Regional Youth Conference
-
-**Regional Youth Conference (with 14 stakes and approx 2000 youth)**
-
-**IMPORTANT** - You MUST register before April 1st
-
-Registration Link: [Regional Youth Conference - July 13, 2019](https://www.surveymonkey.com/r/S2QS6KZ)
-
-Basic overview of the schedule:
-- **Friday, July 12**: evening kickoff & activities (likely to be at the Alliance Stake Center)
-- **Saturday, July 13**: all-day event at the Univ of Texas at Arlington 8:15 am to 8:30 pm
-- **Sunday, July 14**: youth testimony meeting (to be confirmed)
-
-**See attached flyer for more info (flyer does not have correct link, please use link above)**
+### Saturday, 4/13/19
+- **Deacons**: BBQ Activity
+	- **Location**: Home of Bro. Kehler - [1913 Stonehill Dr, Justin, TX](https://goo.gl/maps/FZkroyHRFxj)
 
 
 
 ## Teacher Appreciation Events
 
-The following Teacher Appreciation Events are coming up. We want to emphasize that this is opportunity to serve whether or not you nominated teacher.
+The following Teacher Appreciation Events are coming up. We want to emphasize that this is opportunity to serve whether or not you nominated a teacher.
 
 
 ### Wednesday, 4/17/19
@@ -53,6 +40,23 @@ The following Teacher Appreciation Events are coming up. We want to emphasize th
 
 - **Teacher Appreciation** - Teacher Appreciation Event
 - **Location**: Bonds Ranch Building
+
+
+
+## Regional Youth Conference
+
+**Regional Youth Conference (with 14 stakes and approx 2000 youth)**
+
+~~**IMPORTANT** - You MUST register before April 1st~~
+
+~~Registration Link: [Regional Youth Conference - July 13, 2019](https://www.surveymonkey.com/r/S2QS6KZ)~~
+
+Basic overview of the schedule:
+- **Friday, July 12**: evening kickoff & activities (likely to be at the Alliance Stake Center)
+- **Saturday, July 13**: all-day event at the Univ of Texas at Arlington 8:15 am to 8:30 pm
+- **Sunday, July 14**: youth testimony meeting (to be confirmed)
+
+**See [this flyer for more info](https://drive.google.com/open?id=1c5s7ACAVpQCZyDvkG_qrAqdNhyyhYx6K) (flyer does not have correct link, please use link above)**
 
 
 
