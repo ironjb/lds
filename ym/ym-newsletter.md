@@ -3,20 +3,20 @@ Good evening Brothers and Sisters,
 Here is a list of upcoming activities for the Young Men in the Justin Ward:
 
 
-### Wednesday, 4/3/19
-- **Deacons**: We will be meeting at Brother Newell's home for scouting at 7:00 PM.
-- **Teachers and Priests**: Game of Kubb
-	- **Location**: Justin Community Park - [420 Ovaletta Dr, Justin, Texas](https://goo.gl/maps/ZDrxtRh6HCr)
+### Wednesday, 4/10/19
+- **Combined YM/YW**: Flag Repair
+	- **Location**: home of Brother Newell - [10402 Pheasant Run Rd., Justin, TX](https://goo.gl/maps/5TLGB4YfNK42)
 	- **Time**: 7:00 PM
+	- **Details**: All youth that plan to go to either Scout Camp or High Adventure should be there to help with the service as this is what is funding the majority of the trips.  This will be a great way to serve regardless.
 
 
 ### Friday, 4/12/19
 
 - **Priest/Laurel Prom (Hollywood Gala)**
-    - **Time**: 8-11 PM
-    - **Location**: Buffalo Valley Event Center
-        - [3501 Ganzer Road West, Denton, TX  76207](https://goo.gl/maps/XZBzsWAiFb92)
-    - **Details**: Formal Attire. See [this flyer for additional details](https://drive.google.com/open?id=1zsfRfy6NgAxZRmds8gkcVRRGO_67XaE4).
+	- **Time**: 8-11 PM
+	- **Location**: Buffalo Valley Event Center
+		- [3501 Ganzer Road West, Denton, TX  76207](https://goo.gl/maps/XZBzsWAiFb92)
+	- **Details**: Formal Attire. See [this flyer for additional details](https://drive.google.com/open?id=1zsfRfy6NgAxZRmds8gkcVRRGO_67XaE4).
 
 
 ### Saturday, 4/13/19
