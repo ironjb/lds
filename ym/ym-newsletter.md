@@ -7,7 +7,7 @@ Here is a list of upcoming activities for the Young Men in the Justin Ward:
 - **Combined YM/YW**: Flag Repair
 	- **Location**: home of Brother Newell - [10402 Pheasant Run Rd., Justin, TX](https://goo.gl/maps/5TLGB4YfNK42)
 	- **Time**: 7:00 PM
-	- **Details**: All youth that plan to go to either Scout Camp or High Adventure should be there to help with the service as this is what is funding the majority of the trips.  This will be a great way to serve regardless.
+	- **Details**: All youth that plan to go to either Scout Camp or High Adventure should be there to help with the service as this is what is funding the majority of the trips. This will be a great way to serve regardless.
 
 
 ### Friday, 4/12/19
