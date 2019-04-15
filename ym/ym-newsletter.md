@@ -35,6 +35,13 @@ Here is a list of upcoming activities for the Young Men in the Justin Ward:
 - **Additional Details** - scroll down to view more details about this campout
 
 
+### Saturday, 5/11/19 - **Multi-Stake Dance**
+
+- **Location**: Lewisville Stake Center - [902 Chinn Chapel Rd, Highland Village, TX 75077](https://goo.gl/maps/tprhLtbq5z12)
+- **Time**: 8:00 - 10:30 PM
+- **Details** - see [this flyer for more details](https://drive.google.com/open?id=12sxPqUsu2Mq6cT_ahNO7gqcEdEVLQ97f)
+
+
 ## Regional Youth Conference
 
 **Regional Youth Conference (with 14 stakes and approx 2000 youth)**
