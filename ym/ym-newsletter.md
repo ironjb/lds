@@ -3,24 +3,16 @@ Good evening Brothers and Sisters,
 Here is a list of upcoming activities for the Young Men in the Justin Ward:
 
 
-### Wednesday, 4/17/19
+### Wednesday, 4/24/19
 
-- **Teacher Appreciation** - Etiquette training and program run-through
-- **Location**: Bonds Ranch Building
-- **Time**: 6:30 PM
-
-
-### Friday - Saturday, 4/19/19 - 4/20/19 - **Monthly Deacon Campout**
-
-- **Location** - meet at home of Bro. Hutchens, [1932 Kittredge Way, Justin, TX 76247](https://goo.gl/maps/aUySotfAzVo), then travel to Grasslands
-- **Time** - meet at 5:30 PM on Friday at home of Bro Hutchens
-- **Pickup** - Estimated time for pickup is 1:00 PM on Saturday at Bro. Hutchens' home
-- **Additional Details** - scroll down to view more details about this campout
-
-
-### Wednesday, 4/24/19 - **Teacher Appreciation Event**
-
-- **Location**: Bonds Ranch Building
+- **Deacons**: We will be meeting at Brother Newell's home for scouting at 7:00 PM.
+- **Teachers & Priests**: Teacher Appreciation Event
+	- **Location**: Bonds Ranch Building
+	- **Time**: 5:15 PM
+	- **Details**:
+		- Please arrive by 5:15 PM so we can welcome the teachers
+		- Sunday dress (business casual is acceptable)
+	- **Flyer**: [please see this flyer for additional details](https://drive.google.com/open?id=1UrwjZad3sVkYBRc5enaLnH4rRos0Q16X)
 
 
 ### Saturday, 4/27/19 - **Deacons BBQ Activity**
@@ -29,10 +21,18 @@ Here is a list of upcoming activities for the Young Men in the Justin Ward:
 - **Time**: 12:30 PM
 
 
+### Saturday, 5/4/19
+
+- **Deacons**: Basketball Tournament
+	- **Location**: Stake Center
+	- **Time**: 8:00 AM
+
+
 ### Friday - Saturday, 5/10/19 - 5/11/19 - **Aaronic Priesthood Commemoration Campout**
 
 - **Location**: Trophy Club Park - [2885 Trophy Park Dr, Trophy Club, TX 76262](https://goo.gl/maps/Xq96PmFbdzE2)
-- **Additional Details** - scroll down to view more details about this campout
+- **Flyer**: [flyer for additional details](https://drive.google.com/open?id=1-Ks799L4Tx9wt_DGfRTs2RhWkokAJ416)
+- **Additional Details**: scroll down to view more details about this campout
 
 
 ### Saturday, 5/11/19 - **Multi-Stake Dance**
@@ -40,6 +40,22 @@ Here is a list of upcoming activities for the Young Men in the Justin Ward:
 - **Location**: Lewisville Stake Center - [902 Chinn Chapel Rd, Highland Village, TX 75077](https://goo.gl/maps/tprhLtbq5z12)
 - **Time**: 8:00 - 10:30 PM
 - **Details** - see [this flyer for more details](https://drive.google.com/open?id=12sxPqUsu2Mq6cT_ahNO7gqcEdEVLQ97f)
+
+
+### Sunday, 5/12/19 - **Mother's Day**
+
+- **Youth & Primary**: we will be singing a special musical number for Mother's Day.
+- **Song**:
+	- [Song on Youtube to practice with](https://www.youtube.com/watch?v=P7EfJRrJueY) to practice the song.
+	- [Microsoft Word document with lyrics](https://drive.google.com/open?id=16prAhoNFwmLydHXhD8XNYnGMJ9XDS4ZS)
+	- [PDF document with sheet music/lyrics](https://drive.google.com/open?id=1qcLdrXnfeGyyuRg5q4Yl67hOGuN5Y2jk)
+
+
+### Saturday, 5/18/19
+
+- **Teachers & Priests**: Basketball Tournament
+	- **Location**: Stake Center
+	- **Time**: 8:00 AM
 
 
 ## Regional Youth Conference
@@ -64,54 +80,10 @@ Basic overview of the schedule:
 
 Date | Event
 -- | --
-May 4, 11 | Stake YM Basketball Tournament
+May 4, 18 | Stake YM Basketball Tournament
 May 10-11 | Aaronic Priesthood Commemoration Campout
 May 11 | Stake Youth Dance (Lewisville Stake Center)
 July 12-14 | Regional Youth Conference
-
-
----
-
----
-
-## Additional Details for **Monthly Deacon Campout**
-
-
-#### Food assignments are as follows:
-
-Name | Food Assignment
--- | --
-Rowdy Bowler | 1 lb shredded cheese
-Aaron Noa | 1 lb shredded cheese
-Justin Hutchens | 2 bell peppers, 2 regular onions
-Tomy Zapata | 8 oz Sour Cream
-Brandon Aguilar | 40 Tortillas
-Drew Cook | 40 Tortillas
-Laith Fout | 16 oz Salsa (or as close to that size as possible)
-Simeon Stamps | 2 doz. eggs
-
-If you are not able to attend, please let us know so we can cover your assigned food.
-
-Weather forecast is clear and mild. High for Friday is 73 degrees with a low of 52 degrees overnight.
-
-#### Gear to bring:
-- Tent (if you already have one)
-- Sleeping Bag
-- Mess Kit
-- Water Bottle (with water in it)
-- Sun Screen
-- Bug Spray
-- Flashlight
-
-#### Clothing:
-- Pants (shorts for sleeping only)
-- Shirts
-- Hoodie or light coat
-- Extra Socks
-- Closed Toe Shoes
-- Hat
-
-Feel free to send any other gear or clothing you feel your son may need.
 
 
 ---
@@ -126,7 +98,8 @@ Feel free to send any other gear or clothing you feel your son may need.
 - Friday night dinner is NOT covered by the stake
 - Saturday morning breakfast provided by the stake
 - Friday night around 7:30 will be a short devotional
-- Likely to be a short service project Saturday morning
+- Service project Saturday morning
+- See [flyer for additional details](https://drive.google.com/open?id=1-Ks799L4Tx9wt_DGfRTs2RhWkokAJ416)
 
 ---
 
