@@ -3,22 +3,12 @@ Good evening Brothers and Sisters,
 Here is a list of upcoming activities for the Young Men in the Justin Ward:
 
 
-### Wednesday, 4/24/19
+### Wednesday, 5/1/19
 
 - **Deacons**: We will be meeting at Brother Newell's home for scouting at 7:00 PM.
-- **Teachers & Priests**: Teacher Appreciation Event
-	- **Location**: Bonds Ranch Building
-	- **Time**: 5:15 PM
-	- **Details**:
-		- Please arrive by 5:15 PM so we can welcome the teachers
-		- Sunday dress (business casual is acceptable)
-	- **Flyer**: [please see this flyer for additional details](https://drive.google.com/open?id=1UrwjZad3sVkYBRc5enaLnH4rRos0Q16X)
-
-
-### Saturday, 4/27/19 - **Deacons BBQ Activity**
-
-- **Location**: Home of Bro. Kehler - [1913 Stonehill Dr, Justin, TX](https://goo.gl/maps/FZkroyHRFxj)
-- **Time**: 12:30 PM
+- **Teachers & Priests**: Knife Making
+	- **Location**: Home of Bro. Kehler - [1913 Stonehill Dr, Justin, TX](https://goo.gl/maps/FZkroyHRFxj)
+	- **Time**: 7:00 PM
 
 
 ### Saturday, 5/4/19
