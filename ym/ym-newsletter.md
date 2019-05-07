@@ -3,19 +3,12 @@ Good evening Brothers and Sisters,
 Here is a list of upcoming activities for the Young Men in the Justin Ward:
 
 
-### Wednesday, 5/1/19
+### Wednesday, 5/8/19
 
 - **Deacons**: We will be meeting at Brother Newell's home for scouting at 7:00 PM.
 - **Teachers & Priests**: Knife Making
 	- **Location**: Home of Bro. Kehler - [1913 Stonehill Dr, Justin, TX](https://goo.gl/maps/FZkroyHRFxj)
 	- **Time**: 7:00 PM
-
-
-### Saturday, 5/4/19
-
-- **Deacons**: Basketball Tournament
-	- **Location**: Stake Center
-	- **Time**: 8:00 AM
 
 
 ### Friday - Saturday, 5/10/19 - 5/11/19 - **Aaronic Priesthood Commemoration Campout**
@@ -25,11 +18,16 @@ Here is a list of upcoming activities for the Young Men in the Justin Ward:
 - **Additional Details**: scroll down to view more details about this campout
 
 
-### Saturday, 5/11/19 - **Multi-Stake Dance**
+### Saturday, 5/11/19
 
-- **Location**: Lewisville Stake Center - [902 Chinn Chapel Rd, Highland Village, TX 75077](https://goo.gl/maps/tprhLtbq5z12)
-- **Time**: 8:00 - 10:30 PM
-- **Details** - see [this flyer for more details](https://drive.google.com/open?id=12sxPqUsu2Mq6cT_ahNO7gqcEdEVLQ97f)
+- **Aaron Layne's Eagle Project**
+	- **Location**: Homem of Brother Newell
+	- **Time**: 1:00 PM
+
+- **Multi-Stake Dance**
+	- **Location**: Lewisville Stake Center - [902 Chinn Chapel Rd, Highland Village, TX 75077](https://goo.gl/maps/tprhLtbq5z12)
+	- **Time**: 8:00 - 10:30 PM
+	- **Details** - see [this flyer for more details](https://drive.google.com/open?id=12sxPqUsu2Mq6cT_ahNO7gqcEdEVLQ97f)
 
 
 ### Sunday, 5/12/19 - **Mother's Day**
