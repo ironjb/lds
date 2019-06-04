@@ -3,27 +3,42 @@ Good evening Brothers and Sisters,
 Here is a list of upcoming activities for the Young Men in the Justin Ward:
 
 
-### Wednesday, 5/15/19
+### Sunday, 5/26/16
 
-- **Deacons**: We will be meeting at Brother Newell's home for scouting at 7:00 PM.
+- **Seminary Graduation**
+	- **Location**: Stake Center
+	- **Time**: 6:00 PM
+
+
+## **Remember: Memorial Day Flags Tomorrow!!!**
+
+### Monday, 5/27/19
+
+- **YM/YW**: Memorial Day Flags
+	- **Location**: Home of Bro. Hutchens, [1932 Kittredge Way, Justin, TX 76247](https://goo.gl/maps/aUySotfAzVo)
+	- **Setup Time**: 7:00 AM
+	- **Takedown Time**: 8:00 PM
+
+
+### Wednesday, 5/29/19
+
+- **Deacons**: Scouts.
+	- **Location**: Home of Bro. Newell - [10402 Pheasand Run Rd., Justin, TX 76247](https://goo.gl/maps/qTW65qAKBHDyWAu66)
+	- **Time**: 7:00 PM
 - **Teachers & Priests**: Knife Making
 	- **Location**: Home of Bro. Kehler - [1913 Stonehill Dr, Justin, TX](https://goo.gl/maps/FZkroyHRFxj)
 	- **Time**: 7:00 PM
 
 
-### Saturday, 5/18/19
+### Saturday, 6/1/19
 
-- **Teachers & Priests**: Basketball Tournament
-	- **Location**: Stake Center
-	- **Time**: 8:00 AM
+- **All YM**: Spike Ball
+	- **Location**: Clara Love
+	- **Time**: 10:00 AM
 
 
-### Sunday, 5/19/19
-
-- **Stake General Priesthood Meeting**
-	- **Location**: Stake Center
-	- **Time**: 7:00 PM
-
+### Sunday, 6/9/19 - Saturday, 6/15/19
+- **Deacons**: Scout Camp
 
 ## Regional Youth Conference
 
@@ -47,7 +62,6 @@ Basic overview of the schedule:
 
 Date | Event
 -- | --
-May 4, 18 | Stake YM Basketball Tournament
 July 12-14 | Regional Youth Conference
 
 
