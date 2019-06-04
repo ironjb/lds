@@ -3,24 +3,8 @@ Good evening Brothers and Sisters,
 Here is a list of upcoming activities for the Young Men in the Justin Ward:
 
 
-### Sunday, 5/26/16
 
-- **Seminary Graduation**
-	- **Location**: Stake Center
-	- **Time**: 6:00 PM
-
-
-## **Remember: Memorial Day Flags Tomorrow!!!**
-
-### Monday, 5/27/19
-
-- **YM/YW**: Memorial Day Flags
-	- **Location**: Home of Bro. Hutchens, [1932 Kittredge Way, Justin, TX 76247](https://goo.gl/maps/aUySotfAzVo)
-	- **Setup Time**: 7:00 AM
-	- **Takedown Time**: 8:00 PM
-
-
-### Wednesday, 5/29/19
+### Wednesday, 6/5/19
 
 - **Deacons**: Scouts.
 	- **Location**: Home of Bro. Newell - [10402 Pheasand Run Rd., Justin, TX 76247](https://goo.gl/maps/qTW65qAKBHDyWAu66)
@@ -30,15 +14,11 @@ Here is a list of upcoming activities for the Young Men in the Justin Ward:
 	- **Time**: 7:00 PM
 
 
-### Saturday, 6/1/19
-
-- **All YM**: Spike Ball
-	- **Location**: Clara Love
-	- **Time**: 10:00 AM
-
 
 ### Sunday, 6/9/19 - Saturday, 6/15/19
 - **Deacons**: Scout Camp
+
+
 
 ## Regional Youth Conference
 
