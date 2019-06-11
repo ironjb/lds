@@ -4,19 +4,17 @@ Here is a list of upcoming activities for the Young Men in the Justin Ward:
 
 
 
-### Wednesday, 6/5/19
+### Wednesday, 6/12/19
 
-- **Deacons**: Scouts.
-	- **Location**: Home of Bro. Newell - [10402 Pheasand Run Rd., Justin, TX 76247](https://goo.gl/maps/qTW65qAKBHDyWAu66)
-	- **Time**: 7:00 PM
-- **Teachers & Priests**: Knife Making
+- **Teachers & Priests**: High Adventure Prep
 	- **Location**: Home of Bro. Kehler - [1913 Stonehill Dr, Justin, TX](https://goo.gl/maps/FZkroyHRFxj)
 	- **Time**: 7:00 PM
+	- **[Please fill out and return by this Wednesday](https://drive.google.com/open?id=1OznyCKw4veIn5Q-zqMPlmER17R6PUd4z)**
 
 
 
-### Sunday, 6/9/19 - Saturday, 6/15/19
-- **Deacons**: Scout Camp
+### Monday, 6/24/19 - Saturday, 6/29/19
+- **Teachers & Priests**: High Adventure Trip
 
 
 
@@ -42,6 +40,7 @@ Basic overview of the schedule:
 
 Date | Event
 -- | --
+June 24-29 | High Adventure
 July 12-14 | Regional Youth Conference
 
 
