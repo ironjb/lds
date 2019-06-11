@@ -13,6 +13,27 @@ Here is a list of upcoming activities for the Young Men in the Justin Ward:
 
 
 
+We have flags this weekend.  With the number of youth at camp this weekend it would be appreciated if we could have parents come help set up and take down flags.  We will be setting up the rebar for the flags the night before.  Below are the details:
+
+
+### Thursday, 6/13/19
+
+- We will set up the rebar for the flags on Thursday night at 7:30 PM.
+	- **Location**: Home of Bro. Hutchens, [1932 Kittredge Way, Justin, TX 76247](https://goo.gl/maps/aUySotfAzVo)
+	- **Rebar Setup Time**: 7:30 PM
+
+
+### Friday, 6/14/19
+
+- **Flag Setup and Takedown**
+	- **Location**: Home of Bro. Hutchens, [1932 Kittredge Way, Justin, TX 76247](https://goo.gl/maps/aUySotfAzVo)
+	- **Setup Time**: 7:00 AM
+	- **Takedown Time**: 8:00 PM
+
+
+
+
+
 ### Monday, 6/24/19 - Saturday, 6/29/19
 - **Teachers & Priests**: High Adventure Trip
 
