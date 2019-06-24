@@ -3,18 +3,17 @@ Good evening Brothers and Sisters,
 Here is a list of upcoming activities for the Young Men in the Justin Ward:
 
 
-### Wednesday, 6/19/19
-- **YM & YW Combined**: Swimming
-	- **Time**: 7:00 - 8:00 PM
-	- **Location**: Harriet Creek Pool off of Ford Oaks (across street from [Hutchens](https://goo.gl/maps/aUySotfAzVo))
-	- **Wear your swim suit and bring a towel**
-
-
 ### Monday, 6/24/19 - Saturday, 6/29/19
 - **Teachers & Priests**: _**High Adventure Trip**_
-	- **Depart Time**: 5:00 AM from Harriet Creek front pool
-	- **IMPORTANT NOTICE**: Please turn in [consent form](https://drive.google.com/open?id=1OznyCKw4veIn5Q-zqMPlmER17R6PUd4z) to Bro. Kehler by Wednesday, 6/19/19.  Also, all boys need to drop off their gear for the trip at the [home of Bro. Kehler](https://goo.gl/maps/FZkroyHRFxj) by Saturday, 6/22/19.  If he is not home, the gear may be stored in the back yard under the patio cover.
+	- **Depart Time**: Meet at 4:45 AM and leaving by 5:00 AM from Harriet Creek front pool
+	- **Return**: We will return on Saturday 6/29
 
+
+### Wednesday, 6/26/19
+- **Deacons**:
+	- **Location**: Home of Bro. Newell - [10402 Pheasand Run Rd., Justin, TX 76247](https://goo.gl/maps/qTW65qAKBHDyWAu66)
+	- **Time**: 7:00 - **8:30 PM** (**we will need 90 min to complete this activity**)
+	- **Theme**: **Cows Aren't Just For Dinner**
 
 
 ## Regional Youth Conference
@@ -35,7 +34,6 @@ Basic overview of the schedule:
 
 Date | Event
 -- | --
-June 24-29 | High Adventure
 July 12-14 | Regional Youth Conference
 
 
