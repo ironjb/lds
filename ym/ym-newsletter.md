@@ -3,17 +3,24 @@ Good evening Brothers and Sisters,
 Here is a list of upcoming activities for the Young Men in the Justin Ward:
 
 
-### Monday, 6/24/19 - Saturday, 6/29/19
-- **Teachers & Priests**: _**High Adventure Trip**_
-	- **Depart Time**: Meet at 4:45 AM and leaving by 5:00 AM from Harriet Creek front pool
-	- **Return**: We will return on Saturday 6/29
+### **IMPORTANT: Permission Slips for Youth Conference Needed by Sunday**
+- Please fill out the [Permission and Medical Release Form](https://www.churchofjesuschrist.org/bc/content/shared/content/english/pdf/callings/young-men/parental-permission-medical-release.pdf) and turn it in to Bro. Kehler or Bro. Atkinson by this Sunday.
 
 
-### Wednesday, 6/26/19
-- **Deacons**:
-	- **Location**: Home of Bro. Newell - [10402 Pheasand Run Rd., Justin, TX 76247](https://goo.gl/maps/qTW65qAKBHDyWAu66)
-	- **Time**: 7:00 - **8:30 PM** (**we will need 90 min to complete this activity**)
-	- **Theme**: **Cows Aren't Just For Dinner**
+### Wednesday, 7/3/19
+- **Deacons, Teachers & Priests**: _No Wednesday activity_
+
+
+### Thursday, 7/4/19
+- **Flag's for 4th of July**:
+	- **Location for Harriet Creek and Rivers Edge**: Home of Bro. Hutchens, [1932 Kittredge Way, Justin, TX 76247](https://goo.gl/maps/aUySotfAzVo)
+	- **Location for anyone north of Harriet Creek**: Harvest Neighborhood off 407, Main Entrance
+	- **Setup Time**: 7:00 AM
+	- **Takedown Time**: 8:00 PM
+- **4th of July Breakfast**
+	- **Location**: [Justin Park, next to Library](https://goo.gl/maps/3UfinzZg6gScspnL8)
+	- **Time**: 8:00 - 11:00 AM
+
 
 
 ## Regional Youth Conference
@@ -25,7 +32,7 @@ Basic overview of the schedule:
 - **Saturday, July 13**: all-day event at the Univ of Texas at Arlington 8:15 am to 8:30 pm
 - **Sunday, July 14**: youth testimony meeting (to be confirmed)
 
-**See [this flyer for more info](https://drive.google.com/open?id=1c5s7ACAVpQCZyDvkG_qrAqdNhyyhYx6K) (flyer does not have correct link, please use link above)**
+**See [this flyer for more info](https://drive.google.com/open?id=1c5s7ACAVpQCZyDvkG_qrAqdNhyyhYx6K)**
 
 
 ---
