@@ -3,23 +3,14 @@ Good evening Brothers and Sisters,
 Here is a list of upcoming activities for the Young Men in the Justin Ward:
 
 
-### **IMPORTANT: Permission Slips for Youth Conference Needed by Sunday**
-- Please fill out the [Permission and Medical Release Form](https://www.churchofjesuschrist.org/bc/content/shared/content/english/pdf/callings/young-men/parental-permission-medical-release.pdf) and turn it in to Bro. Kehler or Bro. Atkinson by this Sunday.
-
-
-### Wednesday, 7/3/19
-- **Deacons, Teachers & Priests**: _No Wednesday activity_
-
-
-### Thursday, 7/4/19
-- **Flag's for 4th of July**:
-	- **Location for Harriet Creek and Rivers Edge**: Home of Bro. Hutchens, [1932 Kittredge Way, Justin, TX 76247](https://goo.gl/maps/aUySotfAzVo)
-	- **Location for anyone north of Harriet Creek**: Harvest Neighborhood off 407, Main Entrance
-	- **Setup Time**: 7:00 AM
-	- **Takedown Time**: 8:00 PM
-- **4th of July Breakfast**
-	- **Location**: [Justin Park, next to Library](https://goo.gl/maps/3UfinzZg6gScspnL8)
-	- **Time**: 8:00 - 11:00 AM
+### Wednesday, 7/10/19
+- **Deacons**: Scouts
+	- **Location**: Home of Bro. Newell - [10402 Pheasand Run Rd., Justin, TX 76247](https://goo.gl/maps/qTW65qAKBHDyWAu66)
+	- **Time**: 7:00 PM
+- **Teachers & Priests**: BBQ and Testimony Meeting
+	- **Location**: Home of Bro. Kehler - [1913 Stonehill Dr, Justin, TX](https://goo.gl/maps/FZkroyHRFxj)
+	- **Time**: 7:00 PM
+	- All that attended High-Adventure are strongly encouraged to attend
 
 
 
