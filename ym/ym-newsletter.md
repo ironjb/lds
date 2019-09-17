@@ -3,20 +3,15 @@ Good evening Brothers and Sisters,
 Here is a list of upcoming activities for the Young Men in the Justin Ward:
 
 
-### Wednesday, 9/11/19 - **Flags**
-- **Deacons, Teachers & Priests**
-	- **Location for Harriet Creek and Rivers Edge**: Home of Bro. Hutchens, [1932 Kittredge Way, Justin, TX 76247](https://goo.gl/maps/aUySotfAzVo)
-	- **Location for anyone north of Harriet Creek**: Harvest Neighborhood off 407, Main Entrance
-	- **Setup Time**: 6:40 AM
-	- **Takedown Time**: 7:00 PM
+### Wednesday, 9/18/19
+- **Deacons**: Scouts
+	- **Location**: Home of Bro. Newell - [10402 Pheasand Run Rd., Justin, TX 76247](https://goo.gl/maps/qTW65qAKBHDyWAu66)
+	- **Time**: 7:00 PM
+- **Teachers & Priests**: Mario Kart Tournament
+	- **Location**: Home of Bro. Kehler - [1005 Ridgetop Dr](https://goo.gl/maps/JucQnhLBkxwqteSa7)
+	- **Time**: 7:00 PM
+	- **Details**: Prizes for the winner.
 
-
-### Saturday, 9/14/19
-- **Blackout Dance**
-	- **Location** Colleyville Stake Center - [500 W McDonwell School Rd](https://goo.gl/maps/5GQVAkJm4jvnE2PF9)
-	- **Time**: 8:00 - 10:30 PM
-	- **Details**: Casual dress. For 14+ (or turning in 2019)
-	- **See Flyer**: [Blackout Dance Flyer](https://drive.google.com/open?id=1ZermWE6dFMUdFQptM8gxoyhawEjBbh4l)
 
 
 ### Saturday, 10/12/19
