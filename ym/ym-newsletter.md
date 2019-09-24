@@ -3,18 +3,24 @@ Good evening Brothers and Sisters,
 Here is a list of upcoming activities for the Young Men in the Justin Ward:
 
 
-### Wednesday, 9/18/19
-- **Deacons**: Scouts
-	- **Location**: Home of Bro. Newell - [10402 Pheasand Run Rd., Justin, TX 76247](https://goo.gl/maps/qTW65qAKBHDyWAu66)
+### Wednesday, 9/25/2019
+- **Deacons, Teachers & Priests**: YM/YW Activity - Standards Night
+	- **Location**: McNeill Home - [18571 James Smith, Justin, TX 76247](https://goo.gl/maps/EAaAtu14bFdvED7FA)
 	- **Time**: 7:00 PM
-- **Teachers & Priests**: Mario Kart Tournament
-	- **Location**: Home of Bro. Kehler - [1005 Ridgetop Dr](https://goo.gl/maps/JucQnhLBkxwqteSa7)
+	- **Details**: Bring a chair or blanket to sit on the lawn.
+
+
+
+### Sunday, 9/29/2019
+- **Stake Youth Fireside**
+	- **Location**: Alliance Stake Center
 	- **Time**: 7:00 PM
-	- **Details**: Prizes for the winner.
+	- **Details**: All youth invited. Church Dress. Refreshements after.
+	- [**See Flyer**](https://drive.google.com/open?id=1_26Y99PHLk7lbZd23LhmDgqdMNmvrRO9)
 
 
 
-### Saturday, 10/12/19
+### Saturday, 10/12/2019
 - **Stake Volleyball Tournament**
 	- **Location**: Bear Creek Park - [400 Bear Creek Park Rd, Keller, TX](https://goo.gl/maps/uF44AfuxPkiWpCHfA)
 	- **Time**: 9:00 AM - 12:00 PM
