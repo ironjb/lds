@@ -3,21 +3,17 @@ Good evening Brothers and Sisters,
 Here is a list of upcoming activities for the Young Men in the Justin Ward:
 
 
-### Wednesday, 9/25/2019
-- **Deacons, Teachers & Priests**: YM/YW Activity - Standards Night
-	- **Location**: McNeill Home - [18571 James Smith, Justin, TX 76247](https://goo.gl/maps/EAaAtu14bFdvED7FA)
+### Wednesday, 10/2/19
+- **Deacons**: Scouts
+	- **Location**: Home of Bro. Newell - [10402 Pheasand Run Rd., Justin, TX 76247](https://goo.gl/maps/qTW65qAKBHDyWAu66)
 	- **Time**: 7:00 PM
-	- **Details**: Bring a chair or blanket to sit on the lawn.
-
-
-
-### Sunday, 9/29/2019
-- **Stake Youth Fireside**
-	- **Location**: Alliance Stake Center
+- **Teachers & Priests**: Popsicle Stick Challenge
+	- **Location**: Home of Bro. Campbell - [609 Ranchwood Dr](https://goo.gl/maps/QxwHN4QzoLgVX3Xm9)
 	- **Time**: 7:00 PM
-	- **Details**: All youth invited. Church Dress. Refreshements after.
-	- [**See Flyer**](https://drive.google.com/open?id=1_26Y99PHLk7lbZd23LhmDgqdMNmvrRO9)
 
+### Saturday - Sunday, 10/5/19 - 10/6/19
+- **General Conference**
+	- **Time**: 11:00 AM and 3:00 PM
 
 
 ### Saturday, 10/12/2019
