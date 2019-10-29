@@ -3,25 +3,13 @@ Good evening Brothers and Sisters,
 Here is a list of upcoming activities for the Young Men in the Justin Ward:
 
 
-### Wednesday, 10/23/2019
+### Wednesday, 10/28/2019
 - **Deacons**: Scouts
 	- **Location**: Home of Bro. Newell - [10402 Pheasand Run Rd., Justin, TX 76247](https://goo.gl/maps/qTW65qAKBHDyWAu66)
 	- **Time**: 7:00 PM
-- **Teachers**: No Wednesday Activity
-	- This weeks activity for Teachers will be setting up for Saturday's Trunk or Treat
-- **Priests**: Priest & Laurel Activity
-	- **Location**: 450 Private Road 4817, Rhome, TX 76078
-	- **Time**: 7:00 - 8:30 PM
-	- **Details**: We will meet at Harriet Creek Pool at 6:30 pm to carpool to the activity
-	- [**See flier for details**](https://drive.google.com/open?id=1IGV0hME5LBQzGkN0GRPp5fcoyc7sEJvL)
-	- [**See Directions**](https://drive.google.com/open?id=1f4uuD4vy8OG5SibZUVtQ_-vx89rxfw8V): **GPS will get you close, but may send you to the wrong gate**
-
-
-### Saturday, 10/26/2019
-- **Trunk or Treat**
-	- **Location**: Decatur Building
-	- **Time**: 4:30 PM for setup and 5:00 PM start time
-	- **Details**: Young Men have been asked to set up tables and chairs
+- **Teachers & Priests**:
+	- **Location**: Home of Bro. Kehler - [1913 Stonehill Dr, Justin, TX](https://goo.gl/maps/FZkroyHRFxj)
+	- **Time**: 7:00 PM
 
 
 ### Saturday, 11/2/2019
