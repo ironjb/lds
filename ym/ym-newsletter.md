@@ -23,6 +23,11 @@ Here is a list of upcoming activities for the Young Men in the Justin Ward:
 	- Any assistance is appreciated.
 
 
+Here are additional details for the Service Project this Saturday.
+- **Location**: Stake Center
+- **Time**: 9:00 AM
+- **Details**: [see flyer for additional details](https://drive.google.com/open?id=12bmZJsXWedmc2F1I6wdGlqCSDarru-Ry)
+
 
 Bro. Joe Bell
 YM Secretary
