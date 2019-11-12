@@ -3,32 +3,14 @@ Good evening Brothers and Sisters,
 Here is a list of upcoming activities for the Young Men in the Justin Ward:
 
 
-### Wednesday, 11/6/2019
+### Wednesday, 11/13/2019
 - **Deacons**: Scouts
 	- **Location**: Home of Bro. Newell - [10402 Pheasand Run Rd., Justin, TX 76247](https://goo.gl/maps/qTW65qAKBHDyWAu66)
 	- **Time**: 7:00 PM
-
-
-### Thursday, 11/7/2019
-- **Teachers & Priests**:
-	- **Location**: Northwest High School Football Stadium
+- **Teachers & Priests**: Capture the Flag
+	- **Location**: Home of Bro. Kehler - [1913 Stonehill Dr, Justin, TX](https://goo.gl/maps/FZkroyHRFxj)
 	- **Time**: 7:00 PM
-	- **Details**: We will be supporting Carson Campbell in the Northwest High School football game.
-
-
-### Friday, 11/8/2019
-- **Deacons Campout**
-	- **Location**: meeting at Alex Hutchens' home - [1932 Kittredge Way, Justin, TX 76247](https://goo.gl/maps/Y6tNsJLn16oT2xJNA)
-	- **Time**: 5:30 PM
-	- We will return between 1:00 pm and 2:00 pm on Saturday, November 9, 2019. We will text when we are heading home to give an accurate time.
-	- **Details and Assignments** See the **November Deacon Campout** section below.
-
-
-### Saturday, 11/9/2019
-- **Multi Stake Dance**
-	- **Location**: Lewisville Stake Center - [902 Chinn Chapel Rd, Highland Village, TX 75077](https://goo.gl/maps/s4QkjNrC4U4rHxwC6)
-	- **Time**: 8:00 PM
-	- **Details**: [see flyer for details](https://drive.google.com/open?id=1OTacBQCHDaywQRa4Y-JgFCWnRTuN89EW)
+	- **Details**: We will be meeting at Bro Kehler's home to go play capture the flag.
 
 
 ### Saturday, 11/16/2019
@@ -50,55 +32,6 @@ Here is a list of upcoming activities for the Young Men in the Justin Ward:
 - **Mountain Man Rendezvous**
 	- **Location**: Buchanan Springs at Sid Richardson Scout Ranch
 	- **Details**: See the **Mountain Man Rendezvous (MMR)** section below.
-
-
----
-
-
-## November Deacon Campout
-
-
-**Weather:**
-
-Friday high is in upper 50's with the overnight low in the upper 30's. Right now the forecast is showing partly cloudy, but we all know that can change.
-
-
-**Food assignments:**
-
-- Blake - 2 Bell Pepper
-- Drew - 2 medium onion
-- Aaron - 1 lb shredded cheese
-- Laith - Apples (about 10)
-- Brandon - Bananas (about 10)
-- Justin - Pears (about 10)
-- Rowdy - 1 doz eggs
-- Luke - 1 doz eggs
-- Tomy - 1 loaf bread
-
-
-**Tent assignments:**
-
-- Justin Hutchens
-- Brandon Aguilar
-- Aaron Noa
-- Blake Arnone
-- Luke Naylor
-
-
-**What to bring:**
-
-- Warm clothes (pants, long sleeves, coat, hoodie, etc.)
-- Extra socks
-- Water bottle
-- Chair
-- Sleeping Bag and Blanket
-- Sleeping Pad
-- Insect Repellent
-- Sun Screen
-- Pocket Knife
-- Mess Kit
-- Hat
-- Anything else you think your son may need.
 
 
 ---
