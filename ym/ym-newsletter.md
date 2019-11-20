@@ -4,34 +4,18 @@ Here is a list of upcoming activities for the Young Men in the Justin Ward:
 
 
 ### Wednesday, 11/13/2019
-- **Deacons**: Scouts
-	- **Location**: Home of Bro. Newell - [10402 Pheasand Run Rd., Justin, TX 76247](https://goo.gl/maps/qTW65qAKBHDyWAu66)
+- **YM & YW**: Combined Activity
+	- **Location**: Home of Bro. Campbell - [609 Ranchwood Drive, Justin, TX](https://goo.gl/maps/H8cr6xED1NZQJ49y5)
 	- **Time**: 7:00 PM
-- **Teachers & Priests**: Capture the Flag
-	- **Location**: Home of Bro. Kehler - [1913 Stonehill Dr, Justin, TX](https://goo.gl/maps/FZkroyHRFxj)
-	- **Time**: 7:00 PM
-	- **Details**: We will be meeting at Bro Kehler's home to go play capture the flag.
+	- **Details**: We will be putting some Thanksgiving bags together and then will deliver them.
 
-
-### Saturday, 11/16/2019
-- **Knife Making Workshop**:
-	- **Location**: Hurst Stake Center - [4401 E Loop 820 N North Richland Hills, Texas 76180](https://goo.gl/maps/DtQEQSLfJ13YaGJ48)
-	- **Details**:
-		- If you / your youth are planning on attending the November 16th knife making workshop, you need to e-mail Dave Otteson (River Trails 1st Ward) by next Sunday!  He's e-mail address is davidotteson@yahoo.com.
-		- The cost is $15.00 per knife if you let Dave know by next Sunday.  Depending on how many people are coming, we will assign out arrival times.
-		- We will need some adult help!!!  So if you're coming to the workshop, bring a few adults who can help the youth.
-
-
-### Sunday, 11/17/2019
-- **Face to Face with Elder Gong**
-	- **Time**: 5:00 PM
-	- **Details**: [see flyer for details](https://drive.google.com/open?id=1guT0G2WK-vbqVjlXa8KTxvnmw7yln4k8)
 
 
 ### Thursday - Saturday, 12/26/2019 - 12/28/2019
 - **Mountain Man Rendezvous**
 	- **Location**: Buchanan Springs at Sid Richardson Scout Ranch
 	- **Details**: See the **Mountain Man Rendezvous (MMR)** section below.
+
 
 
 ---
