@@ -3,12 +3,16 @@ Good evening Brothers and Sisters,
 Here is a list of upcoming activities for the Young Men in the Justin Ward:
 
 
-### Wednesday, 11/13/2019
-- **YM & YW**: Combined Activity
-	- **Location**: Home of Bro. Campbell - [609 Ranchwood Drive, Justin, TX](https://goo.gl/maps/H8cr6xED1NZQJ49y5)
+### Wednesday, 12/4/2019
+- **Deacons**: Scouts
+	- **Location**: Home of Bro. Hutchens - [1932 Kittredge Way, Justin, TX 76247](https://goo.gl/maps/ie3WcMJUjyzS6f1LA)
 	- **Time**: 7:00 PM
-	- **Details**: We will be putting some Thanksgiving bags together and then will deliver them.
+- **Teachers & Priests**: No Wednesday Activity
 
+
+### Saturday, 12/7/2019
+- **Youth Temple Trip**
+	- **Details**: Meet at Harriet Creek pool at 2:30 PM.  Make sure to bring your recommends.
 
 
 ### Thursday - Saturday, 12/26/2019 - 12/28/2019
@@ -17,9 +21,7 @@ Here is a list of upcoming activities for the Young Men in the Justin Ward:
 	- **Details**: See the **Mountain Man Rendezvous (MMR)** section below.
 
 
-
 ---
-
 
 ## Mountain Man Rendezvous (MMR)
 
@@ -50,7 +52,6 @@ The cost for the MMR is $30.00 per participant (adult of youth) and $45.00 per s
 **REGISTRATION:**
 
 Registration link is still to come...
-
 
 ---
 
