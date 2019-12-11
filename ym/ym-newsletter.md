@@ -3,16 +3,16 @@ Good evening Brothers and Sisters,
 Here is a list of upcoming activities for the Young Men in the Justin Ward:
 
 
-### Wednesday, 12/4/2019
+### Wednesday, 12/11/2019
 - **Deacons**: Scouts
-	- **Location**: Home of Bro. Hutchens - [1932 Kittredge Way, Justin, TX 76247](https://goo.gl/maps/ie3WcMJUjyzS6f1LA)
+	- **Location**: Home of Bro. Newell - [10402 Pheasand Run Rd., Justin, TX 76247](https://goo.gl/maps/qTW65qAKBHDyWAu66)
 	- **Time**: 7:00 PM
-- **Teachers & Priests**: No Wednesday Activity
+	- **NOTE**: **Wear coats!**
+- **Teachers & Priests**: Planning
+	- **Location**: Bishop's Home - [1700 Sierra Meadow Ln, Justin, TX 76247](https://goo.gl/maps/3RcdVRQwscBqsgCj7)
+	- **Time**: 7:00 PM
+	- **Details**: We will be planning for the next quarter.
 
-
-### Saturday, 12/7/2019
-- **Youth Temple Trip**
-	- **Details**: Meet at Harriet Creek pool at 2:30 PM.  Make sure to bring your recommends.
 
 
 ### Thursday - Saturday, 12/26/2019 - 12/28/2019
