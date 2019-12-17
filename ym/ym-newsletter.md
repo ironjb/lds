@@ -3,15 +3,20 @@ Good evening Brothers and Sisters,
 Here is a list of upcoming activities for the Young Men in the Justin Ward:
 
 
-### Wednesday, 12/11/2019
+### Wednesday, 12/18/2019
 - **Deacons**: Scouts
 	- **Location**: Home of Bro. Newell - [10402 Pheasand Run Rd., Justin, TX 76247](https://goo.gl/maps/qTW65qAKBHDyWAu66)
 	- **Time**: 7:00 PM
-	- **NOTE**: **Wear coats!**
-- **Teachers & Priests**: Planning
-	- **Location**: Bishop's Home - [1700 Sierra Meadow Ln, Justin, TX 76247](https://goo.gl/maps/3RcdVRQwscBqsgCj7)
+- **Teachers & Priests**: Sugar Cookies
+	- **Location**: TBD
 	- **Time**: 7:00 PM
-	- **Details**: We will be planning for the next quarter.
+	- **Details**: We will be decorating sugar cookies to deliver to a few families in the Ward.
+
+
+### Friday, 12/20/2019
+- **Deacons**: Pizza Party
+	- **Location**: Home of Bro. Newell - [10402 Pheasand Run Rd., Justin, TX 76247](https://goo.gl/maps/qTW65qAKBHDyWAu66)
+	- **Time**: 6:00 PM
 
 
 
@@ -51,7 +56,9 @@ The cost for the MMR is $30.00 per participant (adult of youth) and $45.00 per s
 
 **REGISTRATION:**
 
-Registration link is still to come...
+Information about the MMR and the registration page can be reached from this link:  [Mountain Man Rendezvous - Longhorn Council - Texas High Adventure Base](https://www.longhorncouncil.org/event/mountain-man-rendezvous/?d=26&m=Dec&y=2019)
+
+Registration direct link is here:  [Longhorn Council - Mountain Man Rendezvous](https://scoutingevent.com/662-MMR)
 
 ---
 
